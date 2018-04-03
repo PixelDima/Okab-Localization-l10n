@@ -9,7 +9,7 @@ Official Websites:
 
 https://okab.pixeldima.com/
 
-https://pixeldima.co/
+https://pixeldima.com/
 
 <br>
 ThemeForest:
